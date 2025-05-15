@@ -1,0 +1,5 @@
+![image alt](https://github.com/Niklaus2000/FinalTask/blob/main/Screenshot%202025-05-15%20231927.png)
+![image alt](https://github.com/Niklaus2000/FinalTask/blob/main/Screenshot%202025-05-15%20231927.png)
+![image alt](https://github.com/Niklaus2000/FinalTask/blob/main/Screenshot%202025-05-15%20231927.png)
+![image alt](https://github.com/Niklaus2000/FinalTask/blob/main/Screenshot%202025-05-15%20231927.png)
+![image alt](https://github.com/Niklaus2000/FinalTask/blob/main/Screenshot%202025-05-15%20231927.png)
